@@ -1,1 +1,1 @@
-![Screenshot](7_febbraio_2023.png)
+![Screenshot](7_Febbraio_2023.png)
